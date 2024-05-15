@@ -1,2 +1,2 @@
 # Dari-Edgar-lagi
-Semoga suka dah.
+Makasih udah ngajakin aku pertama kali temenan, makasih udah ketemu aku, makasih udah jadi bian yang lucu dan cantik walau kadang suka galak. Hope you like it, semoga.
